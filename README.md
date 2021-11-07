@@ -1,0 +1,2 @@
+# econometrica-note
+opps
